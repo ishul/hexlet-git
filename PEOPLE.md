@@ -1,2 +1,2 @@
 Haskell Curry
-Vot eto da
+Nu ti 4to??
